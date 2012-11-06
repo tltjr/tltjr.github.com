@@ -17,7 +17,7 @@ As far as raising money, the highlight of the last week was definitely this twee
 
 ![Wish Tweet](/img/hansel.png "Tweet")
 
-That tweet happened while I was sleeping and I was treated to a full inbox when I woke up.
+That tweet happened while I was sleeping and I was treated to a full inbox new pledges when I woke up.
 
 The Bad
 -------
